@@ -21,7 +21,7 @@
 
 Hi, I'm Kunal Patil, a Low Code No Code Pro Code enthisiast 🚀 from India. I'm a architect at 🧑‍💼 **[@WTW (Willis Towers Watson)](https://www.wtwco.com/en-in)**. I’m a problem-solver dedicated to the entire development spectrum - from No-Code agility to Pro-Code precision. Beyond architecting solutions and learning new technologies, you can find me in mountains ⛰️.
 
-  <img align="right" alt="GIF" width="250" src="assets/profile.png" />
+  <img align="right" alt="GIF" width="350" src="assets/profile.png" />
 
   **Talking about Personal Stuffs:**
 
