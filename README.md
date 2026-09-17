@@ -15,7 +15,7 @@
 
 Hi, I'm Kunal Patil, a Low Code No Code Pro Code enthisiast 🚀 from India. I'm a architect at 🧑‍💼 [@WTW](https://www.wtwco.com/en-in). I’m a creative problem-solver dedicated to the entire development spectrum—from No-Code agility to Pro-Code precision. Beyond architecting solutions and learning new technologies, you can find me in mountains.
 
-  <img align="right" alt="GIF" width="300" src="https://instagram.fbom40-1.fna.fbcdn.net/v/t51.2885-19/504828377_17845338471504141_5579760352003651903_n.jpg?efg=eyJ2ZW5jb2RlX3RhZyI6InByb2ZpbGVfcGljLmRqYW5nby4xMDgwLmMyIn0&_nc_ht=instagram.fbom40-1.fna.fbcdn.net&_nc_cat=109&_nc_oc=Q6cZ2QFSuxQkbiPcGFOLT2cjARiTL0adDJkYlxw9cRmrmM0trMWteYdW4xL7J07487Kj_CQ&_nc_ohc=BIKwmAMPNnAQ7kNvwFkYCIU&_nc_gid=oY-4CqOmxCz02d3EIUDxKQ&edm=AP4sbd4BAAAA&ccb=7-5&oh=00_AfktS-D3N4F7YgOKAWHLM0S3rR_bmpjk5vQf89UtjcF_ug&oe=69599F78&_nc_sid=7a9f4b" />
+  <img align="right" alt="GIF" width="300" src="[https://instagram.fbom40-1.fna.fbcdn.net/v/t51.2885-19/504828377_17845338471504141_5579760352003651903_n.jpg?efg=eyJ2ZW5jb2RlX3RhZyI6InByb2ZpbGVfcGljLmRqYW5nby4xMDgwLmMyIn0&_nc_ht=instagram.fbom40-1.fna.fbcdn.net&_nc_cat=109&_nc_oc=Q6cZ2QFSuxQkbiPcGFOLT2cjARiTL0adDJkYlxw9cRmrmM0trMWteYdW4xL7J07487Kj_CQ&_nc_ohc=BIKwmAMPNnAQ7kNvwFkYCIU&_nc_gid=oY-4CqOmxCz02d3EIUDxKQ&edm=AP4sbd4BAAAA&ccb=7-5&oh=00_AfktS-D3N4F7YgOKAWHLM0S3rR_bmpjk5vQf89UtjcF_ug&oe=69599F78&_nc_sid=7a9f4b](https://media.licdn.com/dms/image/v2/D4D03AQHQU68ieJLUNw/profile-displayphoto-crop_800_800/B4DaBl9ovDHgAI-/0/1788417053428?e=1791417600&v=beta&t=2dyQHIR95edrR0KNBa5ByqQJ4PHo7RqUx6Qr2bdymiA)" />
 
   **Talking about Personal Stuffs:**
 
